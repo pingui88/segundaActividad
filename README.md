@@ -1,1 +1,1 @@
-# segundaActividad
+MARIANA DOMÍNGUEZ
