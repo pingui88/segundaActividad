@@ -1,5 +1,4 @@
-
-# segundaActividad
+#segundaActividad
+Mariana Domínguez
 Yesica Zabala
 Matias Crino
-MARIANA DOMÍNGUEZ
